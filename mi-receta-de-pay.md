@@ -11,6 +11,8 @@
 - 200 gr de azucar.
 - Una cucharadita de canela molida.
 
+- 200 grs de chispas de chocolate
+- 100 grs de fresas en trozo
 
 ## Procedimiento.
 
